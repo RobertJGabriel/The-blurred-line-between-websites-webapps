@@ -15,4 +15,4 @@ It features a line up of national and international speakers with a wealth of so
 
 
 ## Video
-Coming soonxw
+Coming soon
